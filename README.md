@@ -1,1 +1,2 @@
-# ArteagaDavid.github.io
+# **David Arteaga**
+## GitHub Page
